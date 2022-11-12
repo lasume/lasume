@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @lasume
+- 👀 I’m interested in cognitive and dexterity games for example Schulte Tables, APM Tests, reaction tests, aimbooster and such others
+- 🌱 I’m currently learning Javascript so I could make said games above
+- 🧑‍💻 If anyone has advice or just want to help in any way I'd appreciate it as I am just starting this journey
+- 🖱️ One of my hobies is Aim training, i've gotten really good over the years and I have some top scores in Kovaaks Aim Trainer
+- @ You can contact me here if thats an option or my twitter @QuickAims
+- 🤘 Thank you for taking the time to read this and whoever you are I hope you have an amazing day
